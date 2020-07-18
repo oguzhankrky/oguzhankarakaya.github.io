@@ -1,2 +1,1 @@
-
 oguzhankarakaya.github.io
